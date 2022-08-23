@@ -1,16 +1,12 @@
-### Hi there 👋
-
-<!--
-**CyrilDoesStuff/CyrilDoesStuff** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+### Hello everyone!
+I'm just a college student who's planning to write code in C++ and Python. Maybe even make games in Unity. I'm also a digital artist. My pronouns are he/him, by the way.
+### Current plans
+Currently, I'm planning to learn Python. It's probably something I'll learn about in college anyway. If not, I'll still keep learning it.
+### Contact me
+One way of getting in touch with me is through Discord (CyrilDraws#3009). That is if you'll have anything to say about the projects I'll release in the future. For now, I'd rather keep it friends only.
+### Other socials
+[Twitter](https://twitter.com/CyrilDraws)
+[DeviantArt](https://deviantart.com/cyrildraws)
+[FurAffinity](https://furaffinity.net/user/cyrildraws)
+[YouTube](https://youtube.com/CyrilDoesStuff)
+[YouTube #2](https://youtube.com/channel/UCSi7onWwk-qhwsIbTi3vftw)
