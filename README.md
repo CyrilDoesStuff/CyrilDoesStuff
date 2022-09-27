@@ -1,5 +1,5 @@
 ### Hello everyone!
-I'm just a college student who's planning to write code in C++ and Python. Maybe even make games in Unity. I'm also a digital artist. My pronouns are he/him, by the way.
+I'm just a college student who's planning to write code in C++ and Python. Maybe even make games. I'm also a digital artist. My pronouns are he/him, by the way.
 ### Current plans
 Currently, I'm planning to learn Python. It's probably something I'll learn about in college anyway. If not, I'll still keep learning it.
 ### Contact me
