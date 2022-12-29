@@ -8,6 +8,8 @@ One way of getting in touch with me is through Discord (CyrilDraws#3009). That i
 [Twitter](https://twitter.com/CyrilDraws) |
 [DeviantArt](https://deviantart.com/cyrildraws) |
 [FurAffinity](https://furaffinity.net/user/cyrildraws) |
+[Newgrounds](https://cyrildraws.newgrounds.com) |
 [YouTube](https://youtube.com/@CyrilDoesStuff) |
 [YouTube #2](https://youtube.com/@CyrilDraws) |
-[Tumblr](https://tumblr.com/cyrildraws)
+[Tumblr](https://tumblr.com/cyrildraws) |
+[Artfol](https://artfol.me/cyrildraws)
