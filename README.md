@@ -14,4 +14,4 @@ One way of getting in touch with me is through Discord (CyrilDraws#3009). That i
 [Tumblr](https://tumblr.com/cyrildraws) |
 [Artfol](https://artfol.me/cyrildraws) |
 [pixiv](https://pixiv.me/cyrildraws) | 
-[Pillowfort](https://pillowfort.social/CyrilDraws
+[Pillowfort](https://pillowfort.social/CyrilDraws)
