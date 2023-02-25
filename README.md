@@ -7,7 +7,7 @@ One way of getting in touch with me is through Discord (CyrilDraws#3009). That i
 ### Other socials
 [Twitter](https://twitter.com/CyrilDraws) |
 [DeviantArt](https://deviantart.com/cyrildraws) |
-[FurAffinity](https://furaffinity.net/user/cyrildraws) |
+[Fur Affinity](https://furaffinity.net/user/cyrildraws) |
 [Newgrounds](https://cyrildraws.newgrounds.com) |
 [Tumblr](https://tumblr.com/cyrildraws) |
 [Hive Social](https://hive.page.link/S7Sd) |
