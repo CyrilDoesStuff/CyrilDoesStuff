@@ -9,9 +9,12 @@ One way of getting in touch with me is through Discord (CyrilDraws#3009). That i
 [DeviantArt](https://deviantart.com/cyrildraws) |
 [FurAffinity](https://furaffinity.net/user/cyrildraws) |
 [Newgrounds](https://cyrildraws.newgrounds.com) |
-[YouTube](https://youtube.com/@CyrilDoesStuff) |
-[YouTube #2](https://youtube.com/@CyrilDraws) |
 [Tumblr](https://tumblr.com/cyrildraws) |
+[Hive Social](https://hive.page.link/S7Sd) |
 [Artfol](https://artfol.me/cyrildraws) |
 [pixiv](https://pixiv.me/cyrildraws) | 
-[Pillowfort](https://pillowfort.social/CyrilDraws)
+[Pillowfort](https://pillowfort.social/CyrilDraws) |
+[cohost](https://cohost.org/cyrildraws) |
+[YouTube (main channel)](https://youtube.com/@CyrilDoesStuff) |
+[YouTube (art channel)](https://youtube.com/@CyrilDraws) |
+[Art Fight](https://artfight.net/~CyrilDraws)
