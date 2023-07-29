@@ -5,16 +5,14 @@ Currently, I'm learning Python.
 ### Contact me
 One way of getting in touch with me is through Discord (CyrilDraws#3009). That is if you'll have anything to say about the projects I'll release in the future. For now, I'd rather keep it friends only.
 ### Other socials
-[Mastodon](https://mastodon.art/@CyrilDraws) |
-[DeviantArt](https://deviantart.com/cyrildraws) |
-[Fur Affinity](https://furaffinity.net/user/cyrildraws) |
-[Newgrounds](https://cyrildraws.newgrounds.com) |
-[Tumblr](https://cyrildraws.tumblr.com) |
-[Hive Social](https://hive.page.link/S7Sd) |
-[Artfol](https://artfol.co/cyrildraws) |
-[pixiv](https://pixiv.me/cyrildraws) | 
-[Pillowfort](https://pillowfort.social/CyrilDraws) |
+[Itaku](https://itaku.ee/profile/cyrildraws) | 
+[DeviantArt](https://deviantart.com/cyrildraws) | 
+[Fur Affinity](https://furaffinity.net/user/cyrildraws) | 
+[Newgrounds](https://cyrildraws.newgrounds.com) | 
+[Tumblr](https://cyrildraws.tumblr.com) | 
+[Hive Social](https://hive.page.link/S7Sd) | 
+[Artfol](https://artfol.co/cyrildraws) | 
+[pixiv](https://pixiv.me/cyrildraws) |
 [cohost](https://cohost.org/cyrildraws) | 
-[Artgram](https://artgram.co/cyrildraws) | 
 [YouTube](https://youtube.com/@CyrilDraws) |
 [Art Fight](https://artfight.net/~CyrilDraws)
