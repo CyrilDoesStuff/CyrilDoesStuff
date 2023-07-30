@@ -12,7 +12,6 @@ One way of getting in touch with me is through Discord (CyrilDraws#3009). That i
 [Tumblr](https://cyrildraws.tumblr.com) | 
 [Hive Social](https://hive.page.link/S7Sd) | 
 [Artfol](https://artfol.co/cyrildraws) | 
-[pixiv](https://pixiv.me/cyrildraws) |
 [cohost](https://cohost.org/cyrildraws) | 
-[YouTube](https://youtube.com/@CyrilDraws) |
+[YouTube](https://youtube.com/@CyrilDraws) | 
 [Art Fight](https://artfight.net/~CyrilDraws)
