@@ -1,5 +1,5 @@
 ### Hello everyone!
-I'm just a college student who's planning to write code in C++ and Python. Maybe even make games. I'm also a digital artist. My pronouns are he/him, by the way.
+I'm just a college student who's planning to write code in Python. Maybe even make games. I'm also a digital artist. My pronouns are he/him, by the way.
 ### Current plans
 Currently, I'm learning Python.
 ### Contact me
@@ -11,5 +11,4 @@ One way of getting in touch with me is through Discord (CyrilDraws#3009). That i
 [Newgrounds](https://cyrildraws.newgrounds.com) | 
 [Tumblr](https://cyrildraws.tumblr.com) | 
 [Weasyl](https://weasyl.com/~cyrildraws) | 
-[YouTube](https://youtube.com/@CyrilDraws) | 
 [Art Fight](https://artfight.net/~CyrilDraws)
