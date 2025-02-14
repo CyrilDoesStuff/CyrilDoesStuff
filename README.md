@@ -9,7 +9,6 @@ One way of getting in touch with me is through Discord (cyrildraws). That is if 
 [Patreon](https://patreon.com/CyrilDoesStuff) |
 [Bluesky](https://bsky.app/profile/cyrildraws.bsky.social) |
 [DeviantArt](https://deviantart.com/cyrildraws) | 
-[Fur Affinity](https://furaffinity.net/user/cyrildraws) | 
 [Newgrounds](https://cyrildraws.newgrounds.com) | 
 [Tumblr](https://cyrildraws.tumblr.com) |
 [Twitch](https://twitch.tv/cyrildoesstuff) |
