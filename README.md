@@ -12,4 +12,4 @@ One way of getting in touch with me is through Discord (cyrildraws). That is if 
 [Newgrounds](https://cyrildraws.newgrounds.com) | 
 [Tumblr](https://cyrildraws.tumblr.com) |
 [Twitch](https://twitch.tv/cyrildoesstuff) |
-[YouTube](https://youtube.com/@CyrilDoezStuff)
+[YouTube](https://youtube.com/@CyrilDoesStuff)
