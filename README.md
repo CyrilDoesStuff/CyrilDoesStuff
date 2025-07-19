@@ -2,8 +2,6 @@
 I'm a college graduate and don't plan on writing code for now. I'm also a digital artist. My pronouns are he/him, by the way.
 ### Current plans
 None.
-### Contact me
-Send me a DM on Discord (cyrildraws).
 ### Art stuff
 [Ko-fi](https://ko-fi.com/cyrildraws) |
 [Bluesky](https://bsky.app/profile/cyrildraws.bsky.social) |
