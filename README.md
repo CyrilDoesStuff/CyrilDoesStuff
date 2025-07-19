@@ -3,7 +3,7 @@ I'm a college graduate and don't plan on writing code for now. I'm also a digita
 ### Current plans
 None.
 ### Contact me
-Send me a DM on Discord (cyrildraws) or if you have business inquiries, send them to [cyrildoesstuff@gmail.com](mailto:cyrildoesstuff@gmail.com).
+Send me a DM on Discord (cyrildraws).
 ### Art stuff
 [Ko-fi](https://ko-fi.com/cyrildraws) |
 [Bluesky](https://bsky.app/profile/cyrildraws.bsky.social) |
